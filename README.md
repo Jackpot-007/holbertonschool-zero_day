@@ -1,2 +1,2 @@
 # holbertonschool-zero_day
-Doom es eterno UwU
+Doom es eterno
