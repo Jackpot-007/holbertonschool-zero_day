@@ -1,1 +1,1 @@
-RIP and TEAR UwU
+Doom es eterno UwU
